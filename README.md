@@ -1,0 +1,1 @@
+Strona będzie o piłce - zawierać będzie kilka podstron z aktualnymi tabelami w przeróżnych ligach / będzie tez quiz piłkarski i jeszcze się wymyśli coś 
